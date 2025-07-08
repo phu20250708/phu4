@@ -10,4 +10,4 @@
 
 本站收录来自亚洲、美日韩等多地区的高清视频资源，涵盖AV、中文字幕、福利等多种类型，视频质量高清流畅，支持多个平台播放，带来最佳的无广告观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/phu20250708/phu4 ）</span>
